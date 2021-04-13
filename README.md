@@ -2,7 +2,7 @@
 
 <a name="HEYq2"></a>
 # 联系：
-[点击查看联系方式：TiToData](https://www.titodata.com/about)
+联系微信：ifuxing123
 <a name="GuK5U"></a>
 # 接口列表：
 <a name="C0EN7"></a>
